@@ -1,0 +1,2 @@
+# Optometry--Eye-Care-Vendor-Evaluation-and-Procurement-Notion-Template
+Streamline your optometry practice's vendor selection and procurement process with this comprehensive Notion template. Designed for eye care professionals, practice managers, and procurement teams, this template helps you evaluate optical suppliers, equipment vendors, and lab partners systematically. Track key criteria such as pricing, product qual
